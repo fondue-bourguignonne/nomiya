@@ -1,0 +1,17 @@
+# 杜記 中華第一家
+
+20250628 二次会
+
+四川料理
+
+[地図 : 杜記 中華第一家 - 元町・中華街/中華料理](https://tabelog.com/kanagawa/A1401/A140105/14098997/dtlmap/)
+
+食べログの地図は誤り
+
+以下が正解
+
+[https://www.google.com/maps/place/%E6%9D%9C%E8%A8%98+%E4%B8%AD%E8%8F%AF%E7%AC%AC%E4%B8%80%E5%AE%B6+%E6%96%B0%E5%BA%97%E8%88%97/@35.442866,139.645622,73m/data=!3m1!1e3!4m6!3m5!1s0x60185d002d431c67:0xc8e15137741cdee!8m2!3d35.4428941!4d139.6456903!16s%2Fg%2F11x78htsmd?hl=en-US&entry=ttu&g_ep=EgoyMDI1MDYyMy4yIKXMDSoASAFQAw%3D%3D](https://www.google.com/maps/place/%E6%9D%9C%E8%A8%98+%E4%B8%AD%E8%8F%AF%E7%AC%AC%E4%B8%80%E5%AE%B6+%E6%96%B0%E5%BA%97%E8%88%97/@35.442866,139.645622,73m/data=!3m1!1e3!4m6!3m5!1s0x60185d002d431c67:0xc8e15137741cdee!8m2!3d35.4428941!4d139.6456903!16s%2Fg%2F11x78htsmd?hl=en-US&entry=ttu&g_ep=EgoyMDI1MDYyMy4yIKXMDSoASAFQAw%3D%3D)
+
+沸騰魚
+
+![IMG_4223.jpg](images/pubs/杜記_中華第一家/IMG_4223.jpg)
