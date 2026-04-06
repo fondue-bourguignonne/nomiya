@@ -14,4 +14,4 @@
 
 沸騰魚
 
-![IMG_4223.jpg](images/pubs/杜記_中華第一家/IMG_4223.jpg)
+![IMG_4223.jpg](images/杜記_中華第一家/IMG_4223.jpg)
